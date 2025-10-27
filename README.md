@@ -16,10 +16,10 @@ MY MBTI ISSS ESFJ-T which means um warm, caring,and love helping others hehheheh
    - Noodles
    - Salmon
 
-WELLLLLL MY TOP 3 SONG FROM SOMBR (FOR NOW) IS
-    - 12 to 12
-    - Back to Friends
-    - Undressed
+WELLLLLL MY TOP 3 SONG FROM SOMBR (FOR NOW) IS:
+    1. 12 to 12
+    2. Back to Friends
+    3. Undressed
 
 🔗https://www.youtube.com/watch?v=z0wT6CrEGYg&list=RDz0wT6CrEGYg&start_radio=1 -> 💬Link of Undressed!
 
