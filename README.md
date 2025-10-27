@@ -1,12 +1,12 @@
 <h1>HAI GUYSSSS</h1>
 <p>
-  >ABOUT MEE!
+ABOUT MEE!
 📌I'm Kimberly, or you can call me Kimmy 
 🏫I'm a student from Elyon Chriatian School!
 💬I'm currently in Grade 8.
 MY MBTI ISSS ESFJ-T which means um warm, caring,and love helping others hehheheh
 
-  >FAVORITES😗
+  FAVORITES😗
 1. 🎶Artists:
    - Sabrina Carpenter
    - Sombr
@@ -15,7 +15,7 @@ MY MBTI ISSS ESFJ-T which means um warm, caring,and love helping others hehheheh
    - Sushi
    - Noodles
    - Salmon
-  >WELLLLLL MY TOP 3 SONG FROM SOMBR (FOR NOW) IS
+WELLLLLL MY TOP 3 SONG FROM SOMBR (FOR NOW) IS
     - 12 to 12
     - Back to Friends
     - Undressed
