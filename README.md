@@ -15,6 +15,7 @@ MY MBTI ISSS ESFJ-T which means um warm, caring,and love helping others hehheheh
    - Sushi
    - Noodles
    - Salmon
+
 WELLLLLL MY TOP 3 SONG FROM SOMBR (FOR NOW) IS
     - 12 to 12
     - Back to Friends
