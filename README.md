@@ -4,6 +4,7 @@ ABOUT MEE!
 📌I'm Kimberly, or you can call me Kimmy 
 🏫I'm a student from Elyon Chriatian School!
 💬I'm currently in Grade 8.
+🔵I also love beach and blue stuffss
 MY MBTI ISSS ESFJ-T which means um warm, caring,and love helping others hehheheh
 
   FAVORITES😗
