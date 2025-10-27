@@ -1,16 +1,30 @@
-## Hi there 👋
+<h1>HAI GUYSSSS</h1>
+<p>
+  >ABOUT MEE!
+📌I'm Kimberly, or you can call me Kimmy 
+🏫I'm a student from Elyon Chriatian School!
+💬I'm currently in Grade 8.
+MY MBTI ISSS ESFJ-T which means um warm, caring,and love helping others hehheheh
 
-<!--
-**kimberlychibap/kimberlychibap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  >FAVORITES😗
+1. 🎶Artists:
+   - Sabrina Carpenter
+   - Sombr
+   - Lany
+2. 😋Foods:
+   - Sushi
+   - Noodles
+     - Salmon
+  >WELLLLLL MY TOP 3 SONG FROM SOMBR (FOR NOW) IS
+    1. 12 to 12
+    2. Back to Friends
+    3. Undressed
 
-Here are some ideas to get you started:
+🔗https://www.youtube.com/watch?v=z0wT6CrEGYg&list=RDz0wT6CrEGYg&start_radio=1 -> 💬Link of Undressed!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+BYE GUYSSS🤌🆙🫶
+
+
+
+</p>🏫
